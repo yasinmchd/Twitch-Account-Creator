@@ -1,3 +1,3 @@
 # Twitch-Account-Creator
-First project by yasintrv2#0001 and Oberonskiiv2#0001
+First project by Yasin#0009 and Oberonskiiv2#0001
 
